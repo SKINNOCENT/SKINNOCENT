@@ -19,4 +19,3 @@ I identify wholly as nonhuman / endelic - I identify mostly as a canid.. but the
 ![tumblr_a4e5faa6fd0337170eeff55f1ad17103_5c621397_100](https://github.com/user-attachments/assets/bd573b41-2d8b-4c99-9475-18e19f3e3724)
 <img width="99" height="56" alt="tumblr_3fe4db0fa368d6fdca4b361a1a3e0ed5_b95d01e4_100" src="https://github.com/user-attachments/assets/df29a86f-afd2-4369-9a03-7a178915a142" />
 <img width="99" height="56" alt="tumblr_e36286952686e6d3b965901950ecd590_da275d2d_100" src="https://github.com/user-attachments/assets/d4057839-d1cf-4bbc-bc04-b4227a77ba4b" />
-![tumblr_9c2bc46c04aa8bad19ac4fe26d49f297_f3785ee7_100](https://github.com/user-attachments/assets/8d687694-4460-4422-8d17-a3044f111b5e)
