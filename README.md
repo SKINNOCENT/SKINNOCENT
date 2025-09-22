@@ -1,4 +1,5 @@
-<p align="center"> <img width="500" height="500" alt="fce406139f6ebec24e13c66ecbb2d2f1" src="https://github.com/user-attachments/assets/01e8aae9-4fed-4cce-b9eb-6b4374a95afO" />
+<p align="center"><img width="500" height="500" alt="fce406139f6ebec24e13c66ecbb2d2f1" src="https://github.com/user-attachments/assets/a6e6f02e-2cf1-4daa-9a10-a445f032b1b8" />
+
 
   
   HI. My name is <b>XYZ</b> or <b>VINCENT.</b> I go by he/him.
